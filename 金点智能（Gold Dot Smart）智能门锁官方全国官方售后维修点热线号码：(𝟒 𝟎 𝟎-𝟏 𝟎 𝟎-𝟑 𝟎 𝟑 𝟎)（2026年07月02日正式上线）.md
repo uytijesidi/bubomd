@@ -1,0 +1,647 @@
+金点智能（Gold Dot Smart）智能门锁全国官方售后服务点热线号码:(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)
+金点智能（Gold Dot Smart）智能门锁的维修电话可能因地区和具体服务内容而有所不同，但通常，用户可以通过拨打金点智能（Gold Dot Smart）智能门锁的全国统一官方客服热线(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)来获取维修服务。以下是一些可供参考的电话号码：
+金点智能（Gold Dot Smart）智能门锁全国统一官方客服热线：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+金点智能（Gold Dot Smart）智能门锁另一客服热线：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+这些电话号码通常提供24小时服务，用户可以随时拨打咨询或报修。在拨打电话时，建议用户准备好金点智能（Gold Dot Smart）智能门锁的型号、故障描述以及详细的联系方式，以便客服人员能够更快地为用户提供帮助。
+此外，金点智能（Gold Dot Smart）智能门锁在各地区也可能设有售后服务电话，用户可以根据自己所在的城市，查找并拨打相应的售后服务电话(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)。这些电话号码可能会因地区而异，并且可能会有所变动，因此建议用户在拨打前先进行确认。
+总的来说，如果您需要金点智能（Gold Dot Smart）智能门锁的维修服务，可以直接拨打上述全国统一官方客服热线(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)或所在地区的售后服务电话，以获取及时、专业的帮助。
+
+金点智能（Gold Dot Smart）智能门锁24小时售后服务热线上线（（2026年07月02日正式上线）最新公告）
+金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+金点智能（Gold Dot Smart）智能门锁售后24小时客服热线：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+金点智能（Gold Dot Smart）智能门锁公司主营金点智能（Gold Dot Smart）智能门锁维修 →金点智能（Gold Dot Smart）智能门锁；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，金点智能（Gold Dot Smart）智能门锁服务承诺?.
+北京市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新公布），点击查询：https://github.com/editor4bre/befstl/commit/e773001406228a2971871f1ffc104aea68397549
+。
+南京市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/pail4pants/ornqie/commit/1cb8fe1a56c26079c026996fa6911a5477dfc5d5
+。
+秦皇岛市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/teewasher/hlhsao/commit/6e14e70c5ba48be456708b6e348d712e127da4aa
+。
+珠海市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/kmcgin13/bxhrrj/commit/1f3390bd0e0f1c3f2fa69ee70f842d649d3e91bf
+。
+安康市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新更新），点击查询：https://github.com/radar1flav/tethdy/commit/08f25c32a00954391570d14736b98b3e3a55d1ac
+。
+安庆市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网升级），点击查询：https://github.com/sirdibby/qozysr/commit/8ea486f7c9629a82d65add98e1d9c1deee1a031b
+。
+鞍山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/oralmarezm/xetmjj/commit/4cd456702c377f342b20520db112dab93b092a78
+。
+安阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式公布），点击查询：https://github.com/vincevande/imecwj/commit/d39b6dd5f67c0b00c660bf15223393b800598ad3
+。
+巴中市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网升级），点击查询：https://github.com/dseabotica/ztjwio/commit/9f97a6d204bed69fe095a42a54dd163c1d077cb9
+。
+百色市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网上线），点击查询：https://github.com/ventureleo/jpfwha/commit/0cad832d981c8157fa1996662aa291e55e9d58bd
+。
+蚌埠市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/mrchaos77/wldlaw/commit/ab165214e3f6a663fbb8d92593c7289b39b5e8a8
+。
+保定市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网推出），点击查询：https://github.com/limoboard/hxdqcv/commit/4d2a1c1de9fcce76342bf5be6b1400f838ea27b2
+。
+宝鸡市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新升级），点击查询：https://github.com/nauseanill/reuvmd/commit/e73a686c750bde18cc8763c1739fe301bd1d24e3
+。
+保山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/ethuend/aucwby/commit/0ed1f36b0f932b64561e6d117d16c7486d15b9aa
+。
+包头市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/curson772/xumvoh/commit/6381945b23d467a079092d99ef1f633c327b11b0
+。
+北海市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/questin188/trnfvn/commit/ea972d7b747b03cd8f0816982c49a7ede6c492ca
+。
+本溪市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一更新），点击查询：https://github.com/stitz-sage/gyrtls/commit/e231d0ed91876aad8b18d3599c2e8c5c6c578875
+。
+滨州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新更新），点击查询：https://github.com/cr3rl3n/fncwcl/commit/b65a292721323b919079d55fda0b39db45a90ccc
+。
+博罗市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/d2yzo/uaqykx/commit/62884b1566bafeb3191fcaba72b9792901e880ac
+。
+沧州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新升级），点击查询：https://github.com/igorvoigan/hlomfo/commit/1180b01ebef20cca3d112532b9d8a4c5fa8ecef0
+。
+长春市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新上线），点击查询：https://github.com/editor4bre/befstl/commit/32b4255c4c6e4c1bdf3b6c305e4d38609d080900
+。
+常德市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/pail4pants/ornqie/commit/ff10c7406ee77512992bf64f8270c97659ebb0ef
+。
+长葛市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新更新），点击查询：https://github.com/teewasher/hlhsao/commit/b96b3ac3b72390bb09aeb2ebcc941c44f211d9ce
+。
+长沙市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/kmcgin13/bxhrrj/commit/b33df6bb3a7d57b621e68d2a5c70d71bfbd468b4
+。
+常熟市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式升级），点击查询：https://github.com/radar1flav/tethdy/commit/436c59aca392c680e6cd2105a2ce80f119ec1e5f
+。
+长兴市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网上线），点击查询：https://github.com/sirdibby/qozysr/commit/853bdfa35df9cb7a52167fd23b114452b2ea34ee
+。
+长治市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网推出），点击查询：https://github.com/oralmarezm/xetmjj/commit/9b9097561bb3877681adb439b5905006802fda33
+。
+常州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新公布），点击查询：https://github.com/vincevande/imecwj/commit/081bf2db539abe4567c84d392395b8ec239d66ca
+。
+巢湖市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一推出），点击查询：https://github.com/dseabotica/ztjwio/commit/626f3a032954c3216bd25f0293c3349fd0303c11
+。
+朝阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新公布），点击查询：https://github.com/ventureleo/jpfwha/commit/4719ace546657cc1c7dc3d41b04ed4a239115348
+。
+潮州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网升级），点击查询：https://github.com/mrchaos77/wldlaw/commit/bfa31b045c46634fef1c7e97ab8915f350944247
+。
+郴州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网公布），点击查询：https://github.com/limoboard/hxdqcv/commit/05c1cd03e9ae101006561664dce3d68f9cbfbb59
+。
+承德市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/nauseanill/reuvmd/commit/370dd30103c3a3e4c04ef7435df19f13b2d6697c
+。
+成都市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/ethuend/aucwby/commit/49ac193582f305d3c97d036a334c4ae695c97598
+。
+池州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/curson772/xumvoh/commit/8b1cc8313fd6f4f561cfc2ba76ef39c267045c47
+。
+崇左市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一上线），点击查询：https://github.com/questin188/trnfvn/commit/13c981d3c594380259a9075d03493927462fd09f
+。
+滁州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/stitz-sage/gyrtls/commit/611f669befd2fab125eae6eb9dc155343647334d
+。
+慈溪市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式公布），点击查询：https://github.com/cr3rl3n/fncwcl/commit/6aff5b544ed0124f1d84f87932d4f70b3e62bf0c
+。
+大丰市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新升级），点击查询：https://github.com/d2yzo/uaqykx/commit/327292af9c1fe991629a7dcf254519a3eaa08fdf
+。
+大理市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一上线），点击查询：https://github.com/igorvoigan/hlomfo/commit/7957232ef28a420532cbd9bc7743b756877d2b4e
+。
+大连市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新升级），点击查询：https://github.com/editor4bre/befstl/commit/b81a4066cf5d929614c78b2c3084da78033f797f
+。
+大庆市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/pail4pants/ornqie/commit/9dc3ad85a24838ac5409894f1f6d7b0ea888b87c
+。
+大同市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式推出），点击查询：https://github.com/teewasher/hlhsao/commit/dd610cacb78e0243cb2c314c06a33e5896325d40
+。
+达州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/kmcgin13/bxhrrj/commit/e3ed1a0e57a1b5ecbc45c231fdca73c57b34e86b
+。
+丹东市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/radar1flav/tethdy/commit/e3e0615de7a61db20d6494cb281863538ec4ad5f
+。
+德清市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新升级），点击查询：https://github.com/sirdibby/qozysr/commit/b666afde7cccacaaf68e3178f057a1a475e0c83b
+。
+德阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/oralmarezm/xetmjj/commit/0ad103c2aa6e138c6799b02e391bfd577f5e5786
+。
+德州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/vincevande/imecwj/commit/8215e1d8be07812ed41511f4a35b619b4a10b9df
+。
+定州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一公布），点击查询：https://github.com/dseabotica/ztjwio/commit/9dafc5abb22bd5b6e033798a54db964be773056d
+。
+东海市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新公布），点击查询：https://github.com/ventureleo/jpfwha/commit/974bd75da31cdcad2de28e9ae2c1fd41b4a62392
+。
+东台市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新升级），点击查询：https://github.com/mrchaos77/wldlaw/commit/96a864eef71a98a93ab097368092a05c8bcf630e
+。
+东营市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新公布），点击查询：https://github.com/limoboard/hxdqcv/commit/971fe5cc1dd43c49860b71821f17ce581fa1fa07
+。
+东莞市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/nauseanill/reuvmd/commit/c7d4f549cdb3520b894d421161b8f4fbba5640cc
+。
+鄂尔市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/ethuend/aucwby/commit/891171f3dc02b3edd825b8b0bb8ae989f15555ff
+。
+鄂州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一上线），点击查询：https://github.com/curson772/xumvoh/commit/31e49162d65c5653148f3bd90b3e64218ffd5691
+。
+恩施市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新上线），点击查询：https://github.com/questin188/trnfvn/commit/60de92e8b6e0e6d922bd0d3b880f775b5268db80
+。
+防城港市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/stitz-sage/gyrtls/commit/05683f3e6324b9c42e02c870566ce968e6aea043
+。
+佛山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式公布），点击查询：https://github.com/cr3rl3n/fncwcl/commit/16c7cde38ebb541d31b4f39db5ee2c47ad2163e1
+。
+抚顺市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/d2yzo/uaqykx/commit/7aca6052aa072703b7996dbde46af8e490b5b6ee
+。
+阜新市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/igorvoigan/hlomfo/commit/7635b07b2b13ecfe2f6e4ad5e4aad9785bb0e9a7
+。
+阜阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网推出），点击查询：https://github.com/editor4bre/befstl/commit/c188d2b682820d52f40f2b7fcdc8aef38a0c2c32
+。
+抚州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/pail4pants/ornqie/commit/244fc0738c9216a2ee6917a8446be3b4a75d28f2
+。
+福州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/teewasher/hlhsao/commit/2b37fad58bd51cb9615b18f33954eb4822866024
+。
+赣州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新升级），点击查询：https://github.com/kmcgin13/bxhrrj/commit/83e41d6c1a87cc4ae0ee7d6748d465e8611c001b
+。
+馆陶市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网公布），点击查询：https://github.com/radar1flav/tethdy/commit/cc20e6df18bdcb006af6ac403fa130b16bdf6acc
+。
+广安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/sirdibby/qozysr/commit/64a8cae7b5947500be9ce1515e092ebab53da391
+。
+广元市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一上线），点击查询：https://github.com/oralmarezm/xetmjj/commit/e66cdc3349fce691982d5461e118cf95a74bb8b3
+。
+广州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网公布），点击查询：https://github.com/vincevande/imecwj/commit/7894f253f704f7e2314af228bed2a594038a53f9
+。
+贵港市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/dseabotica/ztjwio/commit/4ede41fe7586dae1db06cb1bfaa13e122c12d9b4
+。
+桂林市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/ventureleo/jpfwha/commit/a8f9957b6f8461c2cad1333212b9726cd55c46b7
+。
+贵阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一推出），点击查询：https://github.com/mrchaos77/wldlaw/commit/df4737cd335b94da63298a9729e0ce7c47dd06d4
+。
+哈尔滨市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/limoboard/hxdqcv/commit/7495d701a016739d5ce1558b0072ee381a5e5051
+。
+海安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一公布），点击查询：https://github.com/nauseanill/reuvmd/commit/a8626d45dd9ab24caf72f72e393985bdfbb24661
+。
+海口市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一公布），点击查询：https://github.com/ethuend/aucwby/commit/959df2c7d7c9c5008c57df9998d9c2f1f0e6216b
+。
+海门市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新上线），点击查询：https://github.com/curson772/xumvoh/commit/71de7d5417f62fd994a4124d1440caf7a8cbe97d
+。
+海宁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/questin188/trnfvn/commit/77036ea07cbe3c695606d8116afa36c7a0bad483
+。
+邯郸市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/stitz-sage/gyrtls/commit/7c8ff5b4e2a57f68c254d951e32b1465a9a86cc2
+。
+汉中市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/cr3rl3n/fncwcl/commit/ee8a28edd6978f9768a60efd817e68d56a01f081
+。
+杭州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新上线），点击查询：https://github.com/d2yzo/uaqykx/commit/a9e9f8d5ed8f0599b552dd0acf3de0492d1a2356
+。
+鹤壁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一公布），点击查询：https://github.com/igorvoigan/hlomfo/commit/01e1b869385c3220916923a51e7d8cec6bef8392
+。
+河池市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/editor4bre/befstl/commit/0994532cec5a98664ebc5e19fc3fa6583a000b6f
+。
+合肥市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/pail4pants/ornqie/commit/fd9d1f1fa9afba167335eca3dc37ac545611d96b
+。
+河源市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/teewasher/hlhsao/commit/d193b0eb356e17abde921e43d960563ff89deb1c
+。
+菏泽市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/kmcgin13/bxhrrj/commit/6068239b40f7f287a30131a87035e380df8b74d8
+。
+贺州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/radar1flav/tethdy/commit/0fc88e1fe044b180a7855058549bff572565aa18
+。
+衡水市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新升级），点击查询：https://github.com/sirdibby/qozysr/commit/06686d0a2b1bb5b04870972ba6d4a9dde0b37912
+。
+衡阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/oralmarezm/xetmjj/commit/f36efa7f9e06ef5bffeeb7dfdd2456c54869c406
+。
+呼和浩特市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新升级），点击查询：https://github.com/vincevande/imecwj/commit/0cd8e8188556d90824f595c7f053d7759e68310b
+。
+葫芦岛市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网上线），点击查询：https://github.com/dseabotica/ztjwio/commit/e3aca47846d58a2d4635d00fced86529e3a5942a
+。
+湖州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/ventureleo/jpfwha/commit/2cc23b9168886f3fe9f947b8fe603f84d05cbe62
+。
+淮安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一上线），点击查询：https://github.com/mrchaos77/wldlaw/commit/397d19d0cae8ace9aeb97e451a307db3793f0fb8
+。
+淮北市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新上线），点击查询：https://github.com/limoboard/hxdqcv/commit/7f5cac0178ee4da838b3dfa89b21ea1b81c1948e
+。
+怀化市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式升级），点击查询：https://github.com/nauseanill/reuvmd/commit/1bc3813624d9b1f2d86b94beb312e7ec8c1f68c3
+。
+淮南市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/ethuend/aucwby/commit/a739f1fd863d146ff5d40529b8f799329dcc123e
+。
+黄冈市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式推出），点击查询：https://github.com/curson772/xumvoh/commit/36ea12d8cb15f2189cb7321e669b8d72c540ecf0
+。
+黄山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一推出），点击查询：https://github.com/questin188/trnfvn/commit/f312f16b75d4b7216e25679a258db10ee9fa28ee
+。
+黄石市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新更新），点击查询：https://github.com/stitz-sage/gyrtls/commit/ccf207b2e9e91d04165d18f86d93a5bec9ac0376
+。
+惠东市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新更新），点击查询：https://github.com/cr3rl3n/fncwcl/commit/565acf1dce18091d6368ee0e46b5009f044eef52
+。
+惠州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新公布），点击查询：https://github.com/d2yzo/uaqykx/commit/52e1862e660fecb1fe4982c324b9e8cd4abc4cc3
+。
+霍邱市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/igorvoigan/hlomfo/commit/93ed754e1f0881f69e4d0c434356e23bef6f432d
+。
+吉安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/editor4bre/befstl/commit/8d3128cb541d71b91c0e2ecf123b964f46b53ffe
+。
+吉林市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/pail4pants/ornqie/commit/adc83c8aedabdfc7b0e0511eb99364fc2a26c44f
+。
+济南市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/teewasher/hlhsao/commit/60ed1e061022ac4de6eb7398b0447fbf437cd832
+。
+济宁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/kmcgin13/bxhrrj/commit/a6c97245d809fd23de9a4cb3abbe3bda67fc8dba
+。
+济源市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网推出），点击查询：https://github.com/radar1flav/tethdy/commit/94e7ebbf7b2d0d93d9425f338ba55597e632bfb1
+。
+佳木斯市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/sirdibby/qozysr/commit/3c7b221a1dab7cd78fab5c9d688ac94fd6024ab7
+。
+嘉善市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一更新），点击查询：https://github.com/oralmarezm/xetmjj/commit/4a3dec4a767244f04ee43267b2dfa0847c349252
+。
+嘉兴市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式更新），点击查询：https://github.com/vincevande/imecwj/commit/6be2c11a4eed3389f3f920167f088317a0237d7f
+。
+嘉峪关市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/dseabotica/ztjwio/commit/84949cf499b4b25c78408489116ec7ff3084128a
+。
+建湖市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式更新），点击查询：https://github.com/ventureleo/jpfwha/commit/961e5701bf6ba88ede3a51f0c38d178b168884de
+。
+江门市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网推出），点击查询：https://github.com/mrchaos77/wldlaw/commit/6054b6f4058b90c070124f09eabd7dec6d366d3b
+。
+江阴市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/limoboard/hxdqcv/commit/ce4b52d378150c71290355d5500ee4de17921bf7
+。
+焦作市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新公布），点击查询：https://github.com/nauseanill/reuvmd/commit/341e83e3318ce8fbc3ea4a0229f892a315babea7
+。
+揭阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/ethuend/aucwby/commit/df68254ee07bc0128b847c53ee5f5423b42baa86
+。
+金华市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新升级），点击查询：https://github.com/curson772/xumvoh/commit/1eca19c3e5916c2791c87ef62f0249665d06379d
+。
+晋江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网推出），点击查询：https://github.com/questin188/trnfvn/commit/dada636629f95a026344997a4b40339725f72268
+。
+锦州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/stitz-sage/gyrtls/commit/ccce7b4b0dd0eb45435c3d6ad78598e39699a488
+。
+景德镇市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/cr3rl3n/fncwcl/commit/e738598750b167ffbc00a8d22a87a6f657af16bf
+。
+靖江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/d2yzo/uaqykx/commit/8fe9b2052c14f53d0433300062eeb053b108a919
+。
+荆门市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新上线），点击查询：https://github.com/igorvoigan/hlomfo/commit/31d52fba9377d7e971142aace04bfbe31d278fcc
+。
+荆州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/editor4bre/befstl/commit/f924b488f7edff39209ec871066f47edc7344ba4
+。
+九江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/pail4pants/ornqie/commit/aa1a8e535aec57663fcdfc13fdd31fb7554b1394
+。
+喀什市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式公布），点击查询：https://github.com/teewasher/hlhsao/commit/5b19c68fc21fa79863aa109269eab7603025c86f
+。
+开封市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/kmcgin13/bxhrrj/commit/d3e779a5f42e5d72dd1bcbd5a19759554605d9ae
+。
+克拉玛市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式公布），点击查询：https://github.com/radar1flav/tethdy/commit/3afefe3c5c0f6e69ca3f20740fdfe627d8831039
+。
+垦利市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/sirdibby/qozysr/commit/e80bc075072571346ff762f2c66963af33867eee
+。
+昆明市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一推出），点击查询：https://github.com/oralmarezm/xetmjj/commit/39ca8ba27e66f54ac3a9c0889237f7c7ac232c03
+。
+昆山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式公布），点击查询：https://github.com/vincevande/imecwj/commit/19ff8400797cb4ba9f4cf554f8db850da41fde15
+。
+拉萨市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/dseabotica/ztjwio/commit/3cce57175224f49bb6808d0cfb1575a24911335d
+。
+来宾市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一更新），点击查询：https://github.com/ventureleo/jpfwha/commit/d041246a3085a4d316b89898e342cb0d4ea974e5
+。
+莱芜市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/mrchaos77/wldlaw/commit/9bcede23b0ef1dbb6a1f9188f2ba4b427777ec73
+。
+兰州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新升级），点击查询：https://github.com/limoboard/hxdqcv/commit/d66e79cb8ed115209292e7caa5827bc9c7ac34c7
+。
+廊坊市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新推出），点击查询：https://github.com/nauseanill/reuvmd/commit/e697a27921087b6b0479ac0baf077152bdd05c7b
+。
+乐清市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新推出），点击查询：https://github.com/ethuend/aucwby/commit/b459ab52034c10505f00be09f150582fd541aafb
+。
+乐山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新上线），点击查询：https://github.com/curson772/xumvoh/commit/e587d7dc6c0cf0236b14957718be397bd6f9339e
+。
+丽水市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一公布），点击查询：https://github.com/questin188/trnfvn/commit/de1592b0f5c02c4c72197bc05f583c7f21de51a2
+。
+连云港市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/stitz-sage/gyrtls/commit/8a0127b155d8bb804dfc20619ac0c0b2ebb5ca69
+。
+凉山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新公布），点击查询：https://github.com/cr3rl3n/fncwcl/commit/c33ea34f13d8652611b2e68b3a843dfec8c7deb8
+。
+聊城市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新升级），点击查询：https://github.com/d2yzo/uaqykx/commit/03f3e3872ba58bf0bd0b6c7c687679d78fc2e843
+。
+辽阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/igorvoigan/hlomfo/commit/c719e899b32bd9560e33bb45887514bf4d2f3cc4
+。
+临汾市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/editor4bre/befstl/commit/211f7d47629620d3a43b2dde3a663531bcad20df
+。
+临沂市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/pail4pants/ornqie/commit/e27d6a1dda87fe58a690c2669d72a16f0d54652a
+。
+六安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新上线），点击查询：https://github.com/teewasher/hlhsao/commit/bc40adc1218fdb7ecbf006106f87c9c3dcaa41eb
+。
+柳州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/kmcgin13/bxhrrj/commit/0e047d5bb2388d770e5170fcd5e6284caef50ad2
+。
+龙岩市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式推出），点击查询：https://github.com/radar1flav/tethdy/commit/fb52d426c83c08d4270aa7fe0159f4cc42a7f7ed
+。
+娄底市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/sirdibby/qozysr/commit/655f346b63aca08dbee56314d13b963253671cdb
+。
+洛阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/oralmarezm/xetmjj/commit/c325d1ce418ffa412c50d4a0ec9ed35b0a671285
+。
+马鞍山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新升级），点击查询：https://github.com/vincevande/imecwj/commit/329c66e96b8649ee630cf0abe5c4551f2b127ac9
+。
+茂名市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新更新），点击查询：https://github.com/dseabotica/ztjwio/commit/3ade6942ac54730da24bc76b62600879fe8a74c7
+。
+眉山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新更新），点击查询：https://github.com/ventureleo/jpfwha/commit/a420ddc60cf805dbd1ead2ee62e2f38fcff2f672
+。
+梅州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式公布），点击查询：https://github.com/mrchaos77/wldlaw/commit/02f98d2083471a465e847b051a5684b0156e6e50
+。
+绵阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新上线），点击查询：https://github.com/limoboard/hxdqcv/commit/0c31c7c216fdcccc45e7e1b597e1b9cb0ed5db03
+。
+明港市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/nauseanill/reuvmd/commit/5a240e145d2dc7d938eebd1e112d375f43387130
+。
+牡丹江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网上线），点击查询：https://github.com/ethuend/aucwby/commit/1da23083ee2906b59b717fc25d5aba051722d32c
+。
+南安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/curson772/xumvoh/commit/354100c63cecc351983992c9a99ccf6c6fcfcc87
+。
+南昌市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/questin188/trnfvn/commit/c1115499447566f8035c04028ea106029ee19e8f
+。
+南充市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/stitz-sage/gyrtls/commit/9974b093bc593d3b50c5a552b8465de426cbe900
+。
+南京市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新推出），点击查询：https://github.com/cr3rl3n/fncwcl/commit/cc1423572a176cf7eef58204e8429c68eb3c050d
+。
+南宁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/d2yzo/uaqykx/commit/732a6be6933ef55a9fdba704ad5247ee1243be47
+。
+南平市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/igorvoigan/hlomfo/commit/7f6390c5931294b128139f820d061b3df1d5a1e4
+。
+南通市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/editor4bre/befstl/commit/3c396548403b3b8c12715f16c02ad00c07775579
+。
+南阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一推出），点击查询：https://github.com/pail4pants/ornqie/commit/1e9de730335c9647c3b225e741a42e00c88be505
+。
+内江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新更新），点击查询：https://github.com/teewasher/hlhsao/commit/38a5c6593103848af54ac40e7e537a2bc83a8371
+。
+宁波市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网公布），点击查询：https://github.com/kmcgin13/bxhrrj/commit/feb0ab97d8ef63c66602fe80a74e1dcc7b72dcfc
+。
+宁德市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新公布），点击查询：https://github.com/radar1flav/tethdy/commit/2887f8a2dc4ea8e04b3a6e5f193e1dcca35e7405
+。
+宁国市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/sirdibby/qozysr/commit/3a76cba6f27f38627b733daebb264c88c6e48009
+。
+盘锦市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/oralmarezm/xetmjj/commit/8a248b99593ce4183f0a21585d88f6199c5cf5ca
+。
+攀枝花市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/vincevande/imecwj/commit/a0ec0a742a87579e1c66d86b9485b5fd33bbf376
+。
+平顶山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/dseabotica/ztjwio/commit/c576d7dc7f0ac96fce1dac24b9831ec6f55fe008
+。
+萍乡市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/ventureleo/jpfwha/commit/4fc97a62432ee83740bfe4b5fb0ec901d9c65771
+。
+莆田市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新公布），点击查询：https://github.com/mrchaos77/wldlaw/commit/03e484d8683746ef1df9b7d95673cd5ab86f6045
+。
+启东市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/limoboard/hxdqcv/commit/4d8afc3a7384e434c3a8c6ff78cd98ffa69bc50d
+。
+齐齐哈尔市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网上线），点击查询：https://github.com/nauseanill/reuvmd/commit/988493c70b7539a1f3ed42911b36de577de59ef5
+。
+潜江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/ethuend/aucwby/commit/f4fe8ca3b4ab98bbdf102d19f0816ff68541b795
+。
+秦皇岛市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/curson772/xumvoh/commit/6aa044c3bdcda3539879b17d0dae637315d70556
+。
+钦州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/questin188/trnfvn/commit/34ebab3945a0575340114da2b5ce1058ae633b99
+。
+青岛市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新上线），点击查询：https://github.com/stitz-sage/gyrtls/commit/99b05ca162d78b8405224480e3fb1b4b02e1650d
+。
+清远市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新上线），点击查询：https://github.com/cr3rl3n/fncwcl/commit/d0ab31604b69d6cafc3995cb4039d4b259111f25
+。
+曲靖市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式更新），点击查询：https://github.com/d2yzo/uaqykx/commit/47bd16ee7a96980857804ba2fc303c0eee2496c3
+。
+泉州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一更新），点击查询：https://github.com/igorvoigan/hlomfo/commit/e949b7b5aa5ed6563b73864389de7312c7735c97
+。
+日照市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/editor4bre/befstl/commit/b09dbabd4acdf7936421809439c1156a5b158abf
+。
+如东市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网上线），点击查询：https://github.com/pail4pants/ornqie/commit/65d3875b49af3ef09e7f2dfec9287249fd4e35df
+。
+如皋市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/teewasher/hlhsao/commit/f5e712494401c6b4be38111fa357dbb387c4e66c
+。
+瑞安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新上线），点击查询：https://github.com/kmcgin13/bxhrrj/commit/1e2c12e3ce986973b06df5c1d93e65e05909d10c
+。
+三门峡市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/radar1flav/tethdy/commit/b66e8793395ad97fe96c9cac0eb5d7e6e41e3efd
+。
+三明市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新更新），点击查询：https://github.com/sirdibby/qozysr/commit/d6d1389662ccde4d7ae4ae4588918a940820b8ce
+。
+三亚市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/oralmarezm/xetmjj/commit/3bfe1200099fd255f3940289e8f2dade8ac40f05
+。
+汕头市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式推出），点击查询：https://github.com/vincevande/imecwj/commit/f0065992c3521aa10d036e82f5071608b5a4a32c
+。
+汕尾市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式更新），点击查询：https://github.com/dseabotica/ztjwio/commit/bade92c1e6e0575bccd6462bb15b9f588cc54435
+。
+上海市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/ventureleo/jpfwha/commit/518d450694bbfc86b22a7d0273413bc83f78bec3
+。
+商丘市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/mrchaos77/wldlaw/commit/3ef82110e67cc444d4677b7d6021dded909ac6d8
+。
+上饶市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新更新），点击查询：https://github.com/limoboard/hxdqcv/commit/f6dccee9691667afa6bfb10e8ac6334dbe40629b
+。
+韶关市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式升级），点击查询：https://github.com/nauseanill/reuvmd/commit/7fde5f8f991a9884a01c712e8a3a4569f1ba9fde
+。
+绍兴市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/ethuend/aucwby/commit/1ab8ac5c6f21afbf30e3e5203ec44b4232108f9b
+。
+邵阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一推出），点击查询：https://github.com/curson772/xumvoh/commit/bbd7c5c925456b79dfeb001b462fd908d0d956d2
+。
+神农架市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/questin188/trnfvn/commit/7ed9f1bbfcf3d6d926b6e0f9daf36d865785b0fb
+。
+沈阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/stitz-sage/gyrtls/commit/e66241a4e69ed3acf82599726f091ea1e12ad8f4
+。
+深圳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/cr3rl3n/fncwcl/commit/93f9dc0be6365728e17f9f2a8351ca406cf0c13a
+。
+石河子市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新升级），点击查询：https://github.com/d2yzo/uaqykx/commit/32589e7d6392fa7692e18c58ed1f88ba5f7ab80d
+。
+石家庄市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/igorvoigan/hlomfo/commit/a2b383627d19abab7c763fbc9305a5684bc84d7a
+。
+石狮市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式上线），点击查询：https://github.com/editor4bre/befstl/commit/ff90c5df4dbcdfff2c2ecbae372db2232748ae57
+。
+十堰市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/pail4pants/ornqie/commit/1517689a858951aeac22f73960ba25d5ca472a0f
+。
+寿光市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新更新），点击查询：https://github.com/teewasher/hlhsao/commit/55f29fb6b9d7c021dd115abb46e6351766fec424
+。
+顺德市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新更新），点击查询：https://github.com/kmcgin13/bxhrrj/commit/daa55293b12de0a2810a0474d47f525d2388e426
+。
+四平市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/radar1flav/tethdy/commit/5b96cb187a7a39e285ba9e318762661d465abca9
+。
+宿迁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/sirdibby/qozysr/commit/32fc8c69da893971bd2b96cea0092ed90e3b019c
+。
+苏州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/oralmarezm/xetmjj/commit/3c1815bb20a078720f68806e6d106aeed13b1ce9
+。
+宿州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/vincevande/imecwj/commit/c3a35cb350ceeaddc7c0d268938943866d23485a
+。
+遂宁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新升级），点击查询：https://github.com/dseabotica/ztjwio/commit/517d1fbe843d70835875a99e67f3b41d48441728
+。
+随州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/ventureleo/jpfwha/commit/21c899a94b27c46ad7e5aa0dbd7c9ceb7dfe7277
+。
+泰安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新上线），点击查询：https://github.com/mrchaos77/wldlaw/commit/24667b9306f01d2f70d20313edc95682c8c0704c
+。
+台山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网推出），点击查询：https://github.com/limoboard/hxdqcv/commit/0edec792283bce155349fc881ca361fa03d7462e
+。
+泰兴市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网推出），点击查询：https://github.com/nauseanill/reuvmd/commit/4bd0b65867bd2e0e2ec54145af9aa7bd117f2cff
+。
+太原市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/ethuend/aucwby/commit/c0bbc29422e01cdc641230955db48a59e97e313e
+。
+泰州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/curson772/xumvoh/commit/3ebb916e3f8392d873e9928a654de2ff6ce2d608
+。
+唐山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/questin188/trnfvn/commit/75a7e414de9de4adcf44ebbb47b3615c8feebcd0
+。
+天长市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新公布），点击查询：https://github.com/stitz-sage/gyrtls/commit/4d88424391d532d9dd3c80f85abb424f8965813d
+。
+天津市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/cr3rl3n/fncwcl/commit/8688522529c07465612b038180757d733edcea65
+。
+天门市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/d2yzo/uaqykx/commit/6c5786e33d24939e62a39ad0aeddcdc5b3743684
+。
+天水市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新更新），点击查询：https://github.com/igorvoigan/hlomfo/commit/37d157c7e1ed4e511f95a83138abe8049bfde4c3
+。
+铁岭市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/editor4bre/befstl/commit/5e068d20548dd280616550d87314d16e41de500e
+。
+桐城市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网推出），点击查询：https://github.com/pail4pants/ornqie/commit/963ce948d4c0913fe5356098f72ca33b0acf6308
+。
+铜川市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/teewasher/hlhsao/commit/c7714890d4fb19d27c24ecd276e4ebe7ce1a0a0e
+。
+铜陵市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/kmcgin13/bxhrrj/commit/40fcf3a21830f4b813ef8bf73d2087f8222e4781
+。
+桐乡市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/radar1flav/tethdy/commit/fba10a56fd7df1887fe85d221f660babc9b2db85
+。
+瓦房店市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网升级），点击查询：https://github.com/sirdibby/qozysr/commit/33d36e1be21adabbb1fffb6836ffee314b1202f4
+。
+潍坊市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式推出），点击查询：https://github.com/oralmarezm/xetmjj/commit/333edeae02b7b6574c530f3a735d0cfaa2f2ae31
+。
+威海市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式推出），点击查询：https://github.com/vincevande/imecwj/commit/f9a4d5bab75ee25667eb2a02a89044e2013708d3
+。
+温岭市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式推出），点击查询：https://github.com/dseabotica/ztjwio/commit/4ea5ccb8a41923e235aab76eaa4d409817fb231c
+。
+温州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式更新），点击查询：https://github.com/ventureleo/jpfwha/commit/6717de9a363e76b11edf7f847002c295ad948a78
+。
+武汉市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/mrchaos77/wldlaw/commit/faa17b8a583aeeb3f36202f97aa66860de5e577c
+。
+芜湖市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式推出），点击查询：https://github.com/limoboard/hxdqcv/commit/921572b5c6cb1d92964ec267c11d5c20782f6dd0
+。
+乌鲁木齐市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/nauseanill/reuvmd/commit/35829f4fa44ba189cd5d3ebf80f809b74cd4cb4f
+。
+无锡市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/ethuend/aucwby/commit/b311838fb504baaedce18dfae8f00c1d8102e2c7
+。
+武夷山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/curson772/xumvoh/commit/4a27b3e9d930e5750ebef951c5a0b12e3122ac54
+。
+梧州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/questin188/trnfvn/commit/232c35841878e1d9c09f480bb468c1e71661d298
+。
+西安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/stitz-sage/gyrtls/commit/e6730728390971a3f35d502194a5aec947da1552
+。
+西宁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新更新），点击查询：https://github.com/cr3rl3n/fncwcl/commit/506693fdf2171bbd1a83bd9fb8245a59086a43ec
+。
+厦门市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新升级），点击查询：https://github.com/d2yzo/uaqykx/commit/a7642b59463eb08839a2927dadef02a8546ec72d
+。
+咸宁市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一更新），点击查询：https://github.com/igorvoigan/hlomfo/commit/19073c8bf177f05390ecaa5a0582db677f31ad0e
+。
+仙桃市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/editor4bre/befstl/commit/2c7549d6720c460a3c1e2835fb1c19f484c64612
+。
+咸阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/pail4pants/ornqie/commit/b08d710d333f5574b823cecb37e71b4cab56c390
+。
+襄樊市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新推出），点击查询：https://github.com/teewasher/hlhsao/commit/01cb374732102cc34f908f8dedb48c0ec385c5e9
+。
+象山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新上线），点击查询：https://github.com/kmcgin13/bxhrrj/commit/ae5f88910fd4b82ba25d2822436d6cc2840f49cb
+。
+湘潭市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网上线），点击查询：https://github.com/radar1flav/tethdy/commit/c77d59ff5cd770ec553d804b4a1767aad7c07b6b
+。
+湘西市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/sirdibby/qozysr/commit/79f3f5962a02f7dffe05a4db8f43a58dd722fb70
+。
+襄阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新更新），点击查询：https://github.com/oralmarezm/xetmjj/commit/f11245c7eb322d5dd424340ba1d8472773ce04b2
+。
+孝感市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新上线），点击查询：https://github.com/vincevande/imecwj/commit/d537502413355508e8583ba87be94c0a92867e48
+。
+萧山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/dseabotica/ztjwio/commit/39df00bdee4bdb16aa2d7167c9eb544cbe9b5804
+。
+新乡市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/ventureleo/jpfwha/commit/579ada528d011707318ab95be7f97c44e1fad4eb
+。
+信阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网上线），点击查询：https://github.com/mrchaos77/wldlaw/commit/7faa388605355b0f6f29dc9a9f22d38823f64af4
+。
+新沂市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一更新），点击查询：https://github.com/limoboard/hxdqcv/commit/caacba4d8f71d980e5a63882115e989bd939db4f
+。
+新余市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新公布），点击查询：https://github.com/nauseanill/reuvmd/commit/116949cd4d9c626bdbc33ae5fe253ec198104fc3
+。
+兴化市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式推出），点击查询：https://github.com/ethuend/aucwby/commit/acc276782702c855ca870099b2b37b3ef2cfee4a
+。
+邢台市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一公布），点击查询：https://github.com/curson772/xumvoh/commit/995ae597c3a03625b286914948343551d0b48f00
+。
+许昌市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一上线），点击查询：https://github.com/questin188/trnfvn/commit/42ce81ab1e42e78073c32482b16c5de835c340a0
+。
+徐州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新公布），点击查询：https://github.com/stitz-sage/gyrtls/commit/06010723d830b6c2d4954bec18ebeb81dac4c2a5
+。
+宣城市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式公布），点击查询：https://github.com/cr3rl3n/fncwcl/commit/dea8adcc9feea95465d0e221aae35a10a3455b17
+。
+雅安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/d2yzo/uaqykx/commit/8707c32ddd6156f6976038665287eaa1c07180e9
+。
+延安市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式上线），点击查询：https://github.com/igorvoigan/hlomfo/commit/d31700ad93744db118e4939127975b3bfeffe4e0
+。
+盐城市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式公布），点击查询：https://github.com/editor4bre/befstl/commit/a9c2d51a71a718fd887d6d10e723f45c09505986
+。
+烟台市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网升级），点击查询：https://github.com/pail4pants/ornqie/commit/813111ec8c4b89ff90ba8da59500fad8957ae5e3
+。
+阳春市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新推出），点击查询：https://github.com/teewasher/hlhsao/commit/ac37135d38962f51aeb1461e86b860ca590d6b6b
+。
+阳江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网推出），点击查询：https://github.com/kmcgin13/bxhrrj/commit/d043f1bea2c4f513be86f6f4de78396f44718d0e
+。
+阳泉市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新上线），点击查询：https://github.com/radar1flav/tethdy/commit/5c6aac303cb89194cdb51e6014ed40b3af017e99
+。
+扬中市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一推出），点击查询：https://github.com/sirdibby/qozysr/commit/742818fafa96b7848c59a51ef987b3456e716b46
+。
+扬州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/oralmarezm/xetmjj/commit/3107dfd26c4e7940424532ea403a76c7fc7fd571
+。
+宜宾市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/vincevande/imecwj/commit/b2da16f5178008935587c6625e0656a744fe4734
+。
+宜昌市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/dseabotica/ztjwio/commit/7f52943a6e12b9c23b2d85e97c5154db613fa10a
+。
+宜春市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/ventureleo/jpfwha/commit/417725bdf3adc66c34b0d438390119f88f6d46dc
+。
+宜都市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/mrchaos77/wldlaw/commit/814ff4411dfd8870ebeab00307d874e3204b091f
+。
+义乌市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网公布），点击查询：https://github.com/limoboard/hxdqcv/commit/32df0841f7ffdbfc9f51ddcc5f324de7193ebbfe
+。
+宜兴市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网升级），点击查询：https://github.com/nauseanill/reuvmd/commit/4723d7cc47b4b60d6cfc9025603216ee6bd130ae
+。
+益阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新公布），点击查询：https://github.com/ethuend/aucwby/commit/efd43241e6914dd3bf517c17221a5000b8782985
+。
+银川市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新上线），点击查询：https://github.com/curson772/xumvoh/commit/257871c57894179520f6c8dca04bc8f41411524a
+。
+营口市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新升级），点击查询：https://github.com/questin188/trnfvn/commit/818ce3227b6feacd32d526fdda3eef459ed2ea1d
+。
+鹰潭市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式推出），点击查询：https://github.com/stitz-sage/gyrtls/commit/a14e5e9505fadd7b30aa5740843247702ea2a672
+。
+永新市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/cr3rl3n/fncwcl/commit/70edef6ea05707f23832841ae1cde1f8501ab229
+。
+永州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/d2yzo/uaqykx/commit/3adc9d8e5513dec6837ba7c7b0ff78e800b49d87
+。
+榆林市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一更新），点击查询：https://github.com/igorvoigan/hlomfo/commit/f38e10d5cec3113053079c798e3499af28316f3e
+。
+玉林市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网上线），点击查询：https://github.com/editor4bre/befstl/commit/4c5b5847c4051acdd0c2a7c4ab5f4a6ddd840608
+。
+玉溪市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新推出），点击查询：https://github.com/pail4pants/ornqie/commit/9ce2cbb1af3cfcf20ad4a27b03392d67dd2fc5da
+。
+余姚市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一推出），点击查询：https://github.com/teewasher/hlhsao/commit/84e1b7d83c183c14353a20c4686b9228965998ce
+。
+禹州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新升级），点击查询：https://github.com/kmcgin13/bxhrrj/commit/2633eabdf69466f5f5ed9cdfdaab8085cd8e35a7
+。
+岳阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一升级），点击查询：https://github.com/radar1flav/tethdy/commit/90a41a6817393165165b8b12a29c249b8ead479c
+。
+云浮市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/sirdibby/qozysr/commit/d8c5e99529ceea63cbc00c0f17592bfa3432a6fe
+。
+枣庄市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网更新），点击查询：https://github.com/oralmarezm/xetmjj/commit/7578f5103c768bccaa481f5319b9680a0baa4a3b
+。
+湛江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一更新），点击查询：https://github.com/vincevande/imecwj/commit/d76ec102b7e0948e5efe236115aa25f52368fdf2
+。
+张家界市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/dseabotica/ztjwio/commit/6d3931c9be083c82e49085fa278ac41a870c9324
+。
+张家口市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新上线），点击查询：https://github.com/ventureleo/jpfwha/commit/8eb8b680c647223b36fdabb93a855ce51fc79061
+。
+章丘市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新推出），点击查询：https://github.com/mrchaos77/wldlaw/commit/f86b7140d08ceb8edff18e18a19085d2b277f187
+。
+漳州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/limoboard/hxdqcv/commit/9a336064a326e526530ace9dbc8c1ea30b556784
+。
+肇庆市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/nauseanill/reuvmd/commit/882209b9122921d01ecc9f789f155961808618d7
+。
+镇江市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新升级），点击查询：https://github.com/ethuend/aucwby/commit/70da2b0658632f34d6c6523eb22090f809246224
+。
+郑州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/curson772/xumvoh/commit/f11e1098160c9c29b8bdce74d81c563d23cc40e2
+。
+重庆市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日全新推出），点击查询：https://github.com/questin188/trnfvn/commit/3c43cc33959434a1caff3955bd6a1f34becbb049
+。
+中山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一推出），点击查询：https://github.com/stitz-sage/gyrtls/commit/716ab0579ac7beb101713e24f37e132cfd11b19d
+。
+周口市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日官网公布），点击查询：https://github.com/cr3rl3n/fncwcl/commit/1525c0a70b07668e54e273e4ac1f256c416955b8
+。
+舟山市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网推出），点击查询：https://github.com/d2yzo/uaqykx/commit/da8d7cbb3daa2e35c7ca45bc88337dd80686f6a9
+。
+诸城市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一公布），点击查询：https://github.com/igorvoigan/hlomfo/commit/6a81224f2bfd87bdab3bcf5f2f7d786a2cb740dd
+。
+珠海市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新上线），点击查询：https://github.com/editor4bre/befstl/commit/312779436434bef6a1e8565574300029e54424e8
+。
+株洲市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式更新），点击查询：https://github.com/pail4pants/ornqie/commit/771bffdaa48639064c567f007f9a5521550a5f9c
+。
+诸暨市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新公布），点击查询：https://github.com/teewasher/hlhsao/commit/54e466c49f538f0760452936c70224914995ba36
+。
+庄河市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/kmcgin13/bxhrrj/commit/3d8217b5031d10f94287c1fa33942716b3e8d3d6
+。
+自贡市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日正式更新），点击查询：https://github.com/radar1flav/tethdy/commit/6c5492b20108ab2288f17c89b6356fcd7bb25c83
+。
+资阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新升级），点击查询：https://github.com/sirdibby/qozysr/commit/7480315ca76c34931b4e0127019bbe05a10fe4c7
+。
+遵义市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日最新上线），点击查询：https://github.com/oralmarezm/xetmjj/commit/a27168d2b0cbd4ffacb19a210927ffbf6b8709ed
+。
+漯河市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日统一上线），点击查询：https://github.com/vincevande/imecwj/commit/898b85d5dc52d08361c48e1634b9a8f896891fcf
+。
+鄢陵市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日最新推出），点击查询：https://github.com/dseabotica/ztjwio/commit/5f0098fd656a7aae068feb8317109f65a9109635
+。
+沭阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一推出），点击查询：https://github.com/ventureleo/jpfwha/commit/4fbd48d20f7d12933da3370b4a73cc5565c756f3
+。
+濮阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日统一升级），点击查询：https://github.com/mrchaos77/wldlaw/commit/56535d57a0590b4f5ef5a62f9da234dd5ad35f0b
+。
+溧阳市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新上线），点击查询：https://github.com/limoboard/hxdqcv/commit/157fc0a193dd3b98170868ccd7c160118c6b5f73
+。
+泸州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网升级），点击查询：https://github.com/nauseanill/reuvmd/commit/dd21c28b519c86ec9287dd46b29344b094d1d082
+。
+衢州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日官网更新），点击查询：https://github.com/ethuend/aucwby/commit/077092bc565de53982fcd6d4b9f2f73a47616121
+。
+亳州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月02日全新升级），点击查询：https://github.com/curson772/xumvoh/commit/fdd85892686bb265661362bc2de78372485ebf66
+。
+邳州市金点智能（Gold Dot Smart）智能门锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月02日正式升级），点击查询：https://github.com/questin188/trnfvn/commit/b99d2fde014988f995b6b43c1315c968d4670e63
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月02日12时55分53秒*
+*数据来源：新浪财经、公开媒体报道*
